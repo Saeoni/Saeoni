@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Saeoni
 - 👀 I’m interested in: Gaming, Anime, reading manga, writing, and basically all the nerdy things
 - 🌱 I’m currently learning: Video Game Developement!
-- 💞️ I’m looking to collaborate on: ... Anything really!
+- 💞️ I’m looking to collaborate on: Anything really!
 - 📫 How to reach me: Discord! My discord is: saeyoung
 - 😄 Pronouns: Super/tired
 - ⚡ Fun fact: I’m at an age where I understand why people do fraud <3 (haha jk...unless?)
